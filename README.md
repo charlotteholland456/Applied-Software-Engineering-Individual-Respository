@@ -1,0 +1,1 @@
+I noticed the original meeting minutes were as a non-editable text file. So these are all the meeting minutes and agendas as text files. The uploaded dates of the PDFs are the days they were written, as I uploaded them straight after they were created. Therefore our meetings were at the same time and day each week.
